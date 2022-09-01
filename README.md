@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi! :smile:
 
 - :wolf: I am a student at the University of Nevada, Reno
 - :space_invader: I am studying Computer Science and Engineering and Digital Interactive Games
